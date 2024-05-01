@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that make a positive impact and push the boundaries of what's possible in technology.
 
-📫 You can reach me via email at lucasjpdc@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/lucasjdc/).
+📫 You can reach me via email at lucasjpdc@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/lucas-jos%C3%A9-pereira-da-costa-01827a24/).
 
 Let's innovate and create together!
 
